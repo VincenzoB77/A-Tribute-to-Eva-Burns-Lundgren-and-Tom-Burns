@@ -1,4 +1,4 @@
-# A-Tribute-to-Eva-Burns-Lundgren-and-Tom-Burns
+# A Tribute to Eva Burns Lundgren and Tom Burns
 The article "Mentalization and Analytical Phenomenological Psychology: Toward an Integrated Phenomenological Model of Self-Understanding and Human Consciousness" is dedicated to Eva Burns-Lundgren and Tom Burns, two distinguished London psychoanalysts and founders of Cognitive Analytic Psychotherapy. As a young psychotherapy trainee, I had the privilege of attending a lecture on mentalization    delivered by Eva Burns-Lundgren at the Ottonello Hospital in Bologna. I still remember the profound intellectual and emotional impact of that experience. At the time, I was simply a trainee sitting among my professors, fascinated by ideas that would remain with me throughout my professional life. Many years later, as the founder of Analytical Phenomenological Psychology (APP), I am honored to engage in a theoretical dialogue with a tradition that inspired me as a student. This work is offered with gratitude, admiration, and deep respect.
 
 ACKNOWLEDGEMENT
